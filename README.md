@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Android, Java, Kotlin**
 
-- 📫 How to reach me **barshed8974@gmail.com**
+- 📫 How to reach me **barshed8974@outlook.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1ropp8vhqFcJHwcyTmMuFBRJTLZem1SBe/view?usp=sharing](https://drive.google.com/file/d/1ropp8vhqFcJHwcyTmMuFBRJTLZem1SBe/view?usp=sharing)
 
